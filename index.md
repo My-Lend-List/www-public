@@ -1,1 +1,1 @@
-# Hello Samu
+# Welcome to My Lend List!
